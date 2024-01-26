@@ -7,8 +7,7 @@
 👩🏽Reach me at
      📧 mercyha@gmail.com
      
-                 🔗linkedin.com/in/yemisrach-mesfin
-
+               
 ⚡ Fun fact: My code is so neat and organized that even my computer's desktop is jealous!
 
     
